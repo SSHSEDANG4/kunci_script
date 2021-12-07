@@ -1,1 +1,1 @@
-# kunci_script
+# premium
